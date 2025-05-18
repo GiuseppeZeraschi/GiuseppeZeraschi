@@ -1,4 +1,4 @@
-## Hi! I'm <a href="https://zeppi.dev/">Giuseppe</a>
+## Hi! I'm Giuseppe 💚
 
 ### Languages:
 
